@@ -1,6 +1,6 @@
 # Privacy Policy: AlphaSheetStudio Pin Publisher
 
-**Operator and business name:** AlphaSheetStudio | Practical Spreadsheets (shop: https://www.etsy.com/shop/AlphaSheetStudio)
+**Operator and business name:** AlphaSheetStudio, also known as Practical Spreadsheets (shop: https://www.etsy.com/shop/AlphaSheetStudio)
 
 Last updated: 2026-10-23
 
